@@ -1,0 +1,1 @@
+# Sraping_Detik.com
